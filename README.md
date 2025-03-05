@@ -19,6 +19,6 @@ Daredevil: Born Again Season 1 is a must-watch for anyone who loves superhero st
 
 If you like stories where heroes face real challenges and make tough choices, then this season is definitely for you. Get ready to dive into the gritty world of Hell’s Kitchen and see why Daredevil continues to inspire fans around the world!
 
-Download Link: https://tinyurl.com/4af9m2pr
-Download Link: https://tinyurl.com/4af9m2pr
-Download Link: https://tinyurl.com/4af9m2pr
+Download Link: https://tinyurl.com/4af9m2pr <br>
+Download Link: https://tinyurl.com/4af9m2pr <br>
+Download Link: https://tinyurl.com/4af9m2pr <br>
